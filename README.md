@@ -3,4 +3,4 @@
 
 **Gray**son/**Tom**my . he ![](https://pixelbank.neocities.org/decome/stars/f865995-ef4c296b.gif)
 
-re[ntry](https://rentry.co/ROCKETSTAR) ☾ [brother](https://github.com/mercduo) ✭ [patr](https://www.patreon.com/rocketstarr)eon
+re[ntry](https://rentry.co/ROCKETSTAR) ☾ [brother](https://github.com/mercduo) ✭ [patr](https://www.patreon.com/rocketstarr)eon . [cr](https://twitter.com/squizoky)ed
